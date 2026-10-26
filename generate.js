@@ -175,7 +175,7 @@ Brand Accent Hex: #2E4A2E
 Brand Text Hex: #1A1A1A
 Key Services: Specialty Coffee, Chef-Crafted Meals, Pet-Friendly Outdoor Seating
 Contact Number: 0994 192 8638
-Street Address: Bacolor River Control Road, Cabetican, Bacolor, Philippines, 2001
+Street Address: XJWV+54 FLORES MINI FARM, Cabetican, Bacolor, Pampanga
 Facebook Link: https://www.facebook.com/theloungecafeatthegranaryprivatevillas
 Messenger Link: https://m.me/theloungecafeatthegranaryprivatevillas
 Instagram Link: https://www.instagram.com/theloungecafe.ph/
